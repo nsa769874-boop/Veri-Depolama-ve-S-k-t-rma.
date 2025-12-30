@@ -1,0 +1,1 @@
+# Veri-Depolama-ve-S-k-t-rma.
